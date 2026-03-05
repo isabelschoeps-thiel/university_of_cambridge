@@ -1,3 +1,5 @@
+The University of Cambridge is a public collegiate research university in Cambridge, England. Founded in 1209, the University of Cambridge is the world's third-oldest university in continuous operation. The university's founding followed the arrival of scholars who left the University of Oxford for Cambridge after a dispute with local townspeople.[11][12] The two ancient English universities, although sometimes described as rivals, share many common features and are often jointly referred to as Oxbridge.
+
 # University of Cambridge
 **Press**
 
